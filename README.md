@@ -15,4 +15,4 @@
  
 ---
 
-Adjunto link [[CUADERNO](https://notebook.google.com/notebook/ccecc83e-3d55-4c68-acc9-11705f7a6622)] ```
+https://notebooklm.link.google/mScUhRsEN9et
